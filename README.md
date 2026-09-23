@@ -1,2 +1,2 @@
 # Devika-
-Engineering Student | Defenc Aspirant 
+Engineering Student | Defence Aspirant 
